@@ -1,4 +1,4 @@
-# 💫About Me :
+# 💫About Me:
 Freelance graphic designer and web developer based in Louisville, Kentucky.
 
 A few of my favorite things:
